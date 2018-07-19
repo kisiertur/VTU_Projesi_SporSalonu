@@ -1,1 +1,0 @@
-# VTU_Projesi_SporSalonu
